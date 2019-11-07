@@ -6,4 +6,3 @@
 
 ![Imgur](https://i.imgur.com/UwcmWc7.gif)
 
-by [@jyhwng](https://github.com/jyhwng)
